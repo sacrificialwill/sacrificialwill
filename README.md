@@ -16,10 +16,12 @@ i am usually hanging around my fiance or friends when online but you are welcome
 
 # permissions
 
-cuddles / hiding / booping 🗸
+🗸 cuddles / hiding / booping
 
-whispers / interaction 🗸
+🗸 whispers / interaction
 
-friend requests 🗸
+🗸 friend requests
 
-roleplay ✗
+✗ roleplay
+
+✗ romance / flirting / sexual topics or suggestions
