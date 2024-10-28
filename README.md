@@ -20,6 +20,4 @@ cuddles / hiding / touch 🗸
 
 whispers / interaction 🗸
 
-friend requests 🗸
-
 roleplay ✗
