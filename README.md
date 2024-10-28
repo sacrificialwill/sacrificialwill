@@ -1,16 +1,25 @@
-## Hi there 👋
+# welcome!
 
-<!--
-**NOMOREWHATIFS/NOMOREWHATIFS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my name is rae and i am pretty new to ponytown :D
 
-Here are some ideas to get you started:
+# about me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+25 · intj · 6w5
+
+engaged to my beloved fiance ♡ 06.11.24
+
+if you're curious about my kins (which are most of the ponies i make) check out my carrd!
+
+i am pretty shy and have a lot of social anxiety so i apologize if i don't talk or interact much ^^;
+
+i am usually hanging around my fiance (ren ♡) or friends when on ponytown but you are welcome to still interact and such!
+
+# permissions
+
+cuddles / hiding / touch 🗸
+
+whispers / interaction 🗸
+
+friend requests 🗸
+
+roleplay ✗
