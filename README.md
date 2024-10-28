@@ -12,7 +12,7 @@ if you're curious about my kins (which are most of the ponies i make) check out 
 
 i am pretty shy and have a lot of social anxiety so i apologize if i don't talk or interact much ^^;
 
-i am usually hanging around my fiance ([ren](https://github.com/TAKEURHEART) ♡) or friends when on ponytown but you are welcome to still interact and such!
+i am usually hanging around my fiance or friends when online but you are welcome to still interact and such!
 
 # permissions
 
