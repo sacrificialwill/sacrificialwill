@@ -16,7 +16,7 @@ i am usually hanging around my fiance ([ren](https://github.com/TAKEURHEART) ♡
 
 # permissions
 
-cuddles / hiding / touch 🗸
+cuddles / hiding / booping 🗸
 
 whispers / interaction 🗸
 
