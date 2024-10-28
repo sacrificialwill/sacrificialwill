@@ -4,7 +4,7 @@ my name is rae and i am pretty new to ponytown :D
 
 # about me
 
-25 | intj | 6w5 | part-time kinner
+25 - intj - 6w5 - part-time kinner
 
 engaged to my beloved fiance ♡ 06.11.24
 
