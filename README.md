@@ -10,7 +10,7 @@ my name is rae and i am pretty new to ponytown :D
 
 engaged to my beloved [fiance](https://github.com/TAKEURHEART) ♡ 06.11.24
 
-if you're curious about my kins (which are most of the ponies i make) check out my [carrd](https://draegon.carrd.co/)!
+if you're curious about my kins (which are most of the ponies i make) check out my [kin carrd](https://draegon.carrd.co/)!
 
 i am pretty shy and have a lot of social anxiety so i apologize if i don't talk or interact much ^^;
 
