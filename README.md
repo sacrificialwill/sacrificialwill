@@ -8,7 +8,7 @@ my name is rae and i am pretty new to ponytown :D
 
 26 - intj - 6w5 - part-time kinner
 
-engaged to my beloved [fiance](https://github.com/TAKEURHEART) ♡ 06.11.24
+engaged to my beloved [fiance](https://github.com/suncatched) ♡ 06.11.24
 
 if you're curious about my kins (which are most of the ponies i make) check out my [kin carrd](https://draegon.carrd.co/)!
 
