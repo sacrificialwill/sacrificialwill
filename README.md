@@ -8,7 +8,7 @@ my name is rae and i am pretty new to ponytown :D
 
 26 - intj - 6w5 - part-time kinner
 
-married to my beloved [husband](https://github.com/interphos) ♡ 06.11.25
+married to my beloved [husband](https://github.com/1863rd) ♡ 06.11.25
 
 if you're curious about my kins (which are most of the ponies i make) check out my [kin carrd](https://draegon.carrd.co/)!
 
