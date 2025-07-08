@@ -6,7 +6,7 @@ my name is rae and i am pretty new to ponytown :D
 
 # ⋆｡°✩ *about me* ✩°｡⋆
 
-26 - intj - 6w5 - part-time kinner
+26 - intj - 6w5 - fictionkin
 
 married to my beloved [husband](https://github.com/realenough) ♡ 06.11.25
 
